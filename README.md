@@ -1,4 +1,4 @@
 # sharanmalipatil
 this my first rep
 <br>
-author-Sharanparakash PAtil
+author-Sharanparakash Malipatil
